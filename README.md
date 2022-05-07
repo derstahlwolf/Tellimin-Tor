@@ -4,3 +4,4 @@ Ț̘̩͓͕̝o͝ ̖̙͙i̴̤n̟̬͚̜v̤̭̠́o͎͎ḱ͕̪͕̺̼̱e ͎͉̰̣t̤�
 # Tellimin Tor
  High-Performance Prognosticator of the Virtual Chorus
 a cybernaut who bookmarks all of the weird sites that he stumbles across
+http://www.stearns.org./
